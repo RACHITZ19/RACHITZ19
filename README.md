@@ -27,7 +27,7 @@
 ---
 
 ### 📫 Reach Me
-- Email: **rachitbhardwaj.dev@gmail.com**
+- Email: bhardwajrachit03@gmail.com
 - LinkedIn: [linkedin.com/in/rachitbhardwajj](https://linkedin.com/in/rachitbhardwajj)
 
 ---
